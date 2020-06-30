@@ -10,4 +10,9 @@ Doch er verliebt sich in die Schwester von Domenic, Mia, die er im weiteren Verl
 * has his heart in the right place
 * caring
 
+In his last scene Brian said:
+
+> Hey, thought you could leave without saying goodbye?
+
+
 
